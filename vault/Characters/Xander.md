@@ -1,0 +1,1 @@
+Xander is the layer 0 (real life) version of Pakoo and Addy. Pakoo is the version of Xander that basically just lives life and is imaginative; Addy is more focused on getting work done and saving memories. Addy has a direct connection to Xander, and after Addy took in Pakoo, he can as well, to an extent.

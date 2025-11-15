@@ -1,0 +1,1 @@
+Pakoo, or OG Pakoo is the grown up version of Xander GIT. They have changed their looks multiple times, and are the first leader of Pakoostan. They are also one of the main connections to Xander, With the other being Addy.

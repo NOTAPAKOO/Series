@@ -1,0 +1,1 @@
+D-type Pakoos are the lowest rank of Pakoo that Addy has made. They work on basic tasks in each sector, with order given by the m-type Pakoos. You can easily tell by the blue brim on their hats.

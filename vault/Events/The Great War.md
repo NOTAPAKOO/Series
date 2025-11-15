@@ -1,0 +1,1 @@
+The Great War was the first war that consisted of many different countries choosing sides to fight on. The main two sides in the war were The David Empire and Pakoostan, who fought for power, land and allies.The conflict resulted in a victory for Pakoostan, which in response they killed the leader of The David Empire.

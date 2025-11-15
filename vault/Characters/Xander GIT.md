@@ -1,0 +1,2 @@
+
+Xander GIT is the first character ever introduced into this world, and they kind of started the world, actually. There wasn't really much of anything going on before Xander created Xander GIT, so this is why our story starts with him. Xander GIT is the childhood version of Pakoo, and the first owner of GIT Land. They are also the creator of Gaxogen, one of the most powerful elements known to Addy. Probably the most powerful character, due to their high imagination.

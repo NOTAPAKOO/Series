@@ -1,0 +1,1 @@
+Memorite is an ore found in the world of the Pakoos. It can be described as a cyan rock that when held, you can see glimpses of visions of the past. This mineral is mainly important to Addy, who is constantly looking for these to be melted down into memory solvent.

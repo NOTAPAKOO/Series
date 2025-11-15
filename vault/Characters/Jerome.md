@@ -1,0 +1,1 @@
+Jerome is the disguised version of Addy, used to trick Pakoo into helping them save every memory of Xander's life possible. Since they introduced themselves to Pakoo before they left GIT Land, they are allowed to traverse the landscape without getting consumed by Gaxogen.

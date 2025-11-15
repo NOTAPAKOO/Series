@@ -1,0 +1,1 @@
+K-type Pakoos are the highest rank of Pakoo that Addy has made. They have control over each building they are assigned to in the facility, and all of the members inside as well. They usually communicate directly with Addy. You can easily tell by the purple brim on their hats.

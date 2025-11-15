@@ -1,0 +1,1 @@
+M-type Pakoos are the second highest rank of Pakoo that Addy has made. They have control over each sector in each building. They give their reports up to the K-types. You can easily tell by the magenta brim on their hats.
